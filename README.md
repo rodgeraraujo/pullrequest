@@ -2,3 +2,4 @@
 
 ## YAY :tada:
 ## Fora bolsonaro....
+## busquem conhecimento
